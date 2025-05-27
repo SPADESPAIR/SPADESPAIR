@@ -1,6 +1,6 @@
 ![yay](https://github.com/user-attachments/assets/7356f5d1-9592-46d1-be1a-511fc5daab7a)
-# SEV…
-Hello there! I am TEL or SEV! This is purely made for PT purposes u__u....
+# TEL / SEV
+Hello there! I am TEL or SEV! This is purely made for PT purposes so i wont make it long u__u...
 ![yellowstars](https://github.com/user-attachments/assets/bc475e77-1731-4935-97ce-4a0acbfa98e8)
 ![blood](https://file.garden/ZZSxuqU5uT7zKhQh/FAVICONS/blood2.gif)**SOCIALS**,,, [TWT](https://x.com/coolkidsev), [TT](https://www.tiktok.com/@7u7sos), [YT](https://youtube.com/@coolkidsev) ... [MY OWN WEBSITE!!](https://lessthanthree.online)
 
